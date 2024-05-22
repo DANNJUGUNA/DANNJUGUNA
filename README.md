@@ -26,3 +26,4 @@ I'm always open to collaborating on exciting projects. If you're looking to work
 
 Happy coding! 🚀
 
+[![](https://visitcount.itsvg.in/api?id=DANNJUGUNA&icon=0&color=0)](https://visitcount.itsvg.in)
